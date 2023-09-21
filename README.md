@@ -3,6 +3,7 @@
 🌙 meu nome é yasmin
 
 🌙 estou estudando pensamento computacional
+
 🌙 @yas_esmanhotto
 
 
