@@ -4,3 +4,7 @@
 
 🌙 estou estudando pensamento computacional
 🌙 @yas_esmanhotto
+
+
+![]()
+https://tenor.com/pt-BR/view/caroline-forbes-the-originals-the-vampire-diaries-to-tvd-gif-22373278
