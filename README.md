@@ -4,9 +4,8 @@
 
 
 🌙 meu nome é yasmin
-
 🌙 estou estudando pensamento computacional
-
+🌙 estou estudando no alura
 🌙 @yas_esmanhotto
 
 
