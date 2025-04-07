@@ -5,7 +5,7 @@
 
 🌙 meu nome é yasmin
 
-🌙 estou estudando pensamento computacional
+🌙 estou estudando matematica 2
 
 🌙 estou estudando no alura
 
